@@ -1,1 +1,1 @@
-cookn://wgvxf-amdyvt.yzq
+myyux://yjsgqfhpknwifd.htr/fun/lfrj

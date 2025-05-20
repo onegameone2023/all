@@ -1,1 +1,1 @@
-https://black-friday.dev
+cookn://wgvxf-amdyvt.yzq

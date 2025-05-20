@@ -1,1 +1,1 @@
-{"qnsp":"myyux://yjsgqfhpknwifd.htr/fun/lfrj"}
+myyux://yjsgqfhpknwifd.htr/fun/lfrj

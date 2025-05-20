@@ -1,0 +1,1 @@
+https://black-friday.dev
